@@ -5,4 +5,4 @@
 - 📚  I currently speak three languages (Brazilian Portugues(Native), English and Spanish)
 - 📫  My Email and Github are open to anyone who wants to contact me -> rafaelmartinsdandrade@gmail.com. I have also my LinkedIn -> https://www.linkedin.com/in/rafael-martins-4638391a1/
 
-Feel free to reach me anytime!! I'm more than open to new experiences and projects!
+Feel free to reach me at anytime!! I'm more than open to new experiences and projects!
